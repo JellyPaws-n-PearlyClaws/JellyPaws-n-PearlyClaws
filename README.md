@@ -44,7 +44,7 @@ uh
 blinks
 ![6f4189f70c07e9aba1f36634e1ae422c](https://github.com/user-attachments/assets/0454416e-a445-4dce-9e13-3f61f5a8a43c)
 
-I HAVE MORE ON MY MAIN PROFILE PLS GO READ IT (if u want,,)
+I HAVE MORE ON MY MAIN PROFILE PLS GO READ IT (if u want,,) @MourningPrey
 
 I THINK THAT'S IT???
 PROBABLY NOT
@@ -67,3 +67,4 @@ OKAI
 
 BAIIIIIII
 WAVES
+![a6ac8b18fbd670ad802bfe167f3b866d](https://github.com/user-attachments/assets/2d2f23ab-a854-4f91-b9e3-d1d686135d6a)
