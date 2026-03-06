@@ -31,7 +31,8 @@ vvv extra ofa da info:
 ***DNI:***
 - If you talk about adult topics! (more specifically s–xually explicit topics/jokes & politics)
 - If you engage in ragebait, drama, or bullying!
-- Anyone under 15 (I say dis bcs the youngest I babysit is 15! ,, my sweet child o mine,, /pos !!)
+- Anyone under 15!
+- ***E-RP***
 
 UHM
 i don't like profanity tbh - it makes me super uncomfy.
@@ -68,3 +69,5 @@ OKAI
 BAIIIIIII
 WAVES
 ![a6ac8b18fbd670ad802bfe167f3b866d](https://github.com/user-attachments/assets/2d2f23ab-a854-4f91-b9e3-d1d686135d6a)
+
+might add my ocs do dis hehehehe
