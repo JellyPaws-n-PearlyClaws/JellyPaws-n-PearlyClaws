@@ -60,12 +60,6 @@ I TINK U SHOULD GO WATCH A QUIET PLACE: DAY ONE !!! IT'S SUCH A COMF MOVIE !!!!!
 ***AND PLS ALWAYS REMEMBER TO STAY SAFE ON THE INTERWEBS.***
 ![96e7814747211b77e84eca624efd743c](https://github.com/user-attachments/assets/88d1be15-7011-4286-998e-a9fb19f7e8cf)
 
-# My Characters/OCs
-
-My sona! :
+# My sona! :
 
 ![Screenshot_20260307_162826_Gallery](https://github.com/user-attachments/assets/c9d45164-06a2-4a30-87c6-4a3ef959222f)
-
-My main oc, Cordova! : 
-
-![Screenshot_20260307_162850_Gallery](https://github.com/user-attachments/assets/9791f37f-ec7d-4b99-b5ea-cc15c43fc74d)
